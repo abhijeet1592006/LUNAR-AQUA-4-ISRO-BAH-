@@ -575,8 +575,10 @@ After running the program, you will obtain:
 
 
 
-BY ABHIJEET SINGH
+ABHIJEET SINGH
+
 Delhi,India
+
 abhijeet8800434205@gmail.com
 
 
